@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+📫 Reach me: jkblog.000webhostapp.com
+
+
+If you are reading this, Have a nice day!!😄😄
